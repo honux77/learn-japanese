@@ -9,6 +9,7 @@
 
 ## 무료 영상
 
+- https://www.youtube.com/watch?v=DPlAum69I0s&list=PLYjLhejUSwngl61CVUeHhBgAQy0PDm9qN
 
 ## 입력기 
 
